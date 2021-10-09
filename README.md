@@ -1,7 +1,10 @@
 ## GM
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 📫 How to reach me: GermanENG #2391
-- ⚡ Fun fact: I climb.
+I am:
+- 50% DAOs /IPFS / Web3
+- 30% Climbing
+- 20% Learning
+
+- Discord GermanENG #2391
+
 
