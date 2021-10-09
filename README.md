@@ -1,6 +1,5 @@
-## GM
+## I care about
 
-I am:
 - 50% DAOs /IPFS / Web3
 - 30% Climbing
 - 20% Learning
