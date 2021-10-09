@@ -1,8 +1,8 @@
-## I care about
+## cares about:
 - 50% DAOs /IPFS / Web3
-- 30% Climbing
-- 20% Learning
+- 30% climbing
+- 20% learning
 
-Discord GermanENG #2391
-Fun fact: I think its cool to care about people.
+- Discord GermanENG #2391
+- Fun fact: thinks its cool to care about sh*t
 
