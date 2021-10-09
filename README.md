@@ -4,5 +4,5 @@
 - 20% learning
 
 - Discord GermanENG #2391
-- Fun fact: thinks its cool to care about sh*t
+- Fun fact: thinks its cool to care about shit 🖤🃏
 
