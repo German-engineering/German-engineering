@@ -1,4 +1,4 @@
-## cares about:
+## ✌🏽 care about:
 - 50% DAOs / IPFS / Web3
 - 30% climbing
 - 20% learning
